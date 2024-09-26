@@ -32,3 +32,8 @@ On our grading sheet, we earned full credit in all categories:
 | No human intervention is needed to complete navigation | None |
 | Pick up process and Drop off process are autonomous | Neither, both remote |
 | Total score | 100/100 |
+
+
+Youtube shorts.1 video link: https://youtube.com/shorts/dhHCXFUCC44?si=bENkDq5vUpfJZRn6
+Youtube shorts.2 video link: https://youtube.com/shorts/s5nJK769Wy4?si=crnyPy7RfDhfRb_m
+Youtube video link: https://youtu.be/SYwuHeUPmHc?si=szaNOMy_eZikEfre
